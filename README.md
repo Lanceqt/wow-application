@@ -58,4 +58,9 @@ Wednesday & Sunday I raid in classic Saturday I host a [podcast](https://www.you
 ## About me.
 
 Now that we got the practical information out of the way here is some information about me.
+I am 34 & from Denmark as my history shows above I have been playing MMOs on and off for the past 15 or so years.
+Other then playing games I enjoy all things tech and an somewhat verced in software development I generally like to be creative.
+
+I like to push myself and always want to do better in the things I care about be that my wow performance or coding or anything else that catches my intrest.
+I stream most of my raiding [here](https://www.twitch.tv/lanc3qt)
 
