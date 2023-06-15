@@ -27,6 +27,7 @@ I didn't participate in any meaningful way.
 
 ### Dragonflight
 I've recently started playing again and am thoroughly enjoying the game. I'm eager to get back into mythic raiding. So far, I have just cleared heroic and mostly done [mythic+](https://raider.io/characters/eu/tarren-mill/Lancedrake). I've picked up [Evoker](https://worldofwarcraft.blizzard.com/en-gb/character/eu/tarren-mill/lancedrake), which I have been greatly enjoying! I can play both healer and DPS ([logs](https://www.warcraftlogs.com/character/eu/tarren-mill/lancedrake)), but I prefer DPS in raids.
+Pugged the first two bosses in mythic and cleared HC.
 
 I am also working on a Priest and Druid as alts, primarily for M+.
 
