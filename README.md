@@ -44,3 +44,7 @@ I can raid on Thursday, Friday, Monday, and Tuesday. Almost any time of day work
 Now that we've covered the practical information, here's a bit about me. I'm 34 and from Denmark. As my history shows, I have been playing MMOs on and off for the past 15 or so years. Apart from playing games, I'm a tech enthusiast, somewhat versed in software development, and I generally enjoy being creative.
 
 I like to challenge myself and always strive to do better in the things I care about, be it my WoW performance, coding, or anything else that piques my interest. I stream most of my raiding [here](https://www.twitch.tv/lanc3qt).
+
+## Contact information.
+Discord: Lancelolqt
+Battletag: Practical#2374
