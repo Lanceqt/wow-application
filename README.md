@@ -47,4 +47,5 @@ I like to challenge myself and always strive to do better in the things I care a
 
 ## Contact information.
 Discord: Lancelolqt
+
 Battletag: Practical#2374
